@@ -1,1 +1,3 @@
 # Kurs
+
+Twoja stara
